@@ -2,7 +2,7 @@ Hi, I’m Mohammed Alyazidi
 
 interested in Software engineering, CyberSecurity
 
-currently looking taking courses to improve developement
+currently taking courses to improve developement
 
 
 
